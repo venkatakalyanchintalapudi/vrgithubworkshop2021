@@ -32,10 +32,11 @@ Sno|cast and crew
 3|koratalasiva
 4|poojahedge
 
-~~sai~~
+
 > student
 
 @DeepakPhaneendra hi!
 
 RRR 🔥 🤝 🌊 
-sai 🤝
+RAMCHARAN 🔥 
+NTR 🌊
